@@ -14,4 +14,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... My bachelor's thesis was on photography, memory, trauma, film and literature. (Did I mention I have a long list of interests?)
 -->
-![DSC03567](https://github.com/user-attachments/assets/8bfd6928-e73f-46d4-8fb3-035a2f685563)
